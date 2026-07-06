@@ -1,4 +1,4 @@
-
+exclusive Trust.Zone Module | static-IP + tracker-blocker offers the most advanced Trust.Zone module, with static-IP and tracker-blocker. Ideal for users who value privacy and
 
 
 
